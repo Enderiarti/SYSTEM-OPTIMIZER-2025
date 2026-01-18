@@ -1,1 +1,1 @@
-#  System Optimizer Pro 2025
+#  System Optimizer 2025
